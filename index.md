@@ -10,3 +10,23 @@ Erst in Staffel 6, also eine Staffel später, in der letzten Folge Weihnachten i
 
 Ref: https://southpark.fandom.com/de/wiki/Kenny_McCormick
 
+## Todesursachen
+
+* Gift
+
+* Feuer
+
+* Verkehr
+
+* I.T.
+
+* Hunger
+
+* GitHub
+
+* Cartman
+
+* Gott
+
+* Disney
+
