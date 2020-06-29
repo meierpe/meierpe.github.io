@@ -30,3 +30,29 @@ Ref: https://southpark.fandom.com/de/wiki/Kenny_McCormick
 
 * Disney
 
+## Supergute Zitate
+
+Southpark Season 15 Folge 14: "Immer Ärger mit Proll-Trash"
+
+Karen McCormick
+> Oh, du bist es. Ich habe mich schon gefragt wann du auftauchst. Du kommst immer wenn ich traurig bin.
+
+Kenny McCormick aka Mysterion
+> Es wird alles gut Karen, du darfst nie daran zweifeln
+
+Karen McCormick
+> Warum mussten meine Mom und mein Dad ins Gefängniss?
+
+Kenny McCormick aka Mysterion
+> Manchmal machen Menschen Fehler. Manchmal erkennen sie nicht was wichtig ist.
+
+Karen McCormick
+> Aber ich bin jetzt ganz alleine.
+
+Kenny McCormick aka Mysterion
+> Nein bis tud nicht. Egal wo du bist und egal was du tust. Ich werde immer da sein! Hast du verstanden?
+
+Karen McCormick
+> Ich werde es versuchen
+
+
