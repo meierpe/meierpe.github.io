@@ -55,4 +55,7 @@ Kenny McCormick aka Mysterion
 Karen McCormick
 > Ich werde es versuchen
 
+## Gutes Bild
+
+<img src="https://images.app.goo.gl/wbhpzyzjdzqezuHA9"/>
 
