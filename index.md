@@ -8,3 +8,5 @@ In manchen Folgen stirbt er jedoch nicht, wie in den Folgen "Abgesetzt" oder "Wi
 In der Folge Kennys Tod stirbt Kenny das letzte Mal für einen längeren Zeitraum, danach taucht er in der nächsten Folge nicht mehr auf.
 Erst in Staffel 6, also eine Staffel später, in der letzten Folge Weihnachten im Irak: Blut und Wunder kommt er wieder ohne Erklärung in die Stadt zurück.
 
+Ref: https://southpark.fandom.com/de/wiki/Kenny_McCormick
+
